@@ -1,4 +1,4 @@
 
 ### تابع : [ALSiD](https://t.me/syntral) ###
 
-![ALSiD](https://te.legra.ph/file/90d376aa72fde4c601cdd.jpg)
+![ALSiD](https://graph.org/file/44e8ed88b5c1f79aa15ad.jpg)
